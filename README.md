@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @skidpy
+- 👀 I’m interested in ...more python
+- 🌱 I’m currently learning ...begginer python
+- 💞️ I’m looking to collaborate on ...nothing rn
+- 📫 How to reach me ...skids#8349 on discord
